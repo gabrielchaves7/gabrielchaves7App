@@ -1,0 +1,1 @@
+O aplicativo não coleta seus dados de nenhuma maneira. Como usuário você só tem direito a leitura das informações contidas.
